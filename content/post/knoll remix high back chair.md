@@ -1,0 +1,109 @@
++++
+        
+author = "Our Writers"
+        
+title = "Knoll Remix High Back Chair"
+        
+date = 2020-11-10T04:50:13.561409
+        
++++
+[ ![](https://www.knoll.com/media/556/867/remix-high-back-hero.jpg)](https://www.knoll.com/media/556/867/remix-high-back-hero.jpg) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://hivemodern.com/public_resources/full/remix-high-back-chair-formway-knoll-5.jpg)](https://hivemodern.com/public_resources/full/remix-high-back-chair-formway-knoll-5.jpg) Remix® High Back Chair - hivemodern.com
+[ ![](https://www.knoll.com/static_resources/images/products/catalog/eco/parts/66W/66W-HA_(XU)_XU07_(XB)_XB07_HC_2_S_X_DK_01_XOB01_USF_~_FZ.jpg)](https://www.knoll.com/static_resources/images/products/catalog/eco/parts/66W/66W-HA_(XU)_XU07_(XB)_XB07_HC_2_S_X_DK_01_XOB01_USF_~_FZ.jpg) Remix® Ergonomic Chair | Knoll
+[ ![](https://www.knoll.com/media/551/56/11380_c.jpg)](https://www.knoll.com/media/551/56/11380_c.jpg) Remix® Ergonomic Chair | Knoll
+[ ![](https://www.knoll.com/media/807/579/11385_c.jpg)](https://www.knoll.com/media/807/579/11385_c.jpg) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://image.ylighting.com/is/image/modern/KNOP210976_alt36?$modern-600$)](https://image.ylighting.com/is/image/modern/KNOP210976_alt36?$modern-600$) Knoll Remix High Back Office Chair | YLighting.com
+[ ![](https://www.knoll.com/media/262/438/one_remix-chapters-flex-net.jpg)](https://www.knoll.com/media/262/438/one_remix-chapters-flex-net.jpg) Remix® Ergonomic Chair | Knoll
+[ ![](https://modernplanet.com/media/catalog/product/cache/2/image/1800x/040ec09b1e35df139433887a97daa66f/r/e/remix_2.jpg)](https://modernplanet.com/media/catalog/product/cache/2/image/1800x/040ec09b1e35df139433887a97daa66f/r/e/remix_2.jpg) Knoll Remix® High Back Chair
+[ ![](https://workdesign.com/wp-content/uploads/2015/04/11378_high-720x540.jpg)](https://workdesign.com/wp-content/uploads/2015/04/11378_high-720x540.jpg) A Chair That Supports How We Move and Think at Work
+[ ![](https://www.aof.com/wp-content/media/2015/03/11430_m.jpg)](https://www.aof.com/wp-content/media/2015/03/11430_m.jpg) Remix Work Chair High Back - Arenson Office Furnishings
+[ ![](https://hivemodern.com/public_resources/full/remix-work-chair-formway-knoll-14.jpg)](https://hivemodern.com/public_resources/full/remix-work-chair-formway-knoll-14.jpg) Remix® Work Chair - hivemodern.com
+[ ![](https://images.squarespace-cdn.com/content/v1/5b16ceba372b965bcf3b248c/1536183257330-65GBK7M55603HYXI3G18/ke17ZwdGBToddI8pDm48kC79fe_CM70OD46F1Nudzs1Zw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZamWLI2zvYWH8K3-s_4yszcp2ryTI0HqTOaaUohrI8PIeb4HT289Tjdxp2CFuDIx56V8kmpo5GH2m80kPy8MH28KMshLAGzx4R3EDFOm1kBS/11389_l.jpg)](https://images.squarespace-cdn.com/content/v1/5b16ceba372b965bcf3b248c/1536183257330-65GBK7M55603HYXI3G18/ke17ZwdGBToddI8pDm48kC79fe_CM70OD46F1Nudzs1Zw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZamWLI2zvYWH8K3-s_4yszcp2ryTI0HqTOaaUohrI8PIeb4HT289Tjdxp2CFuDIx56V8kmpo5GH2m80kPy8MH28KMshLAGzx4R3EDFOm1kBS/11389_l.jpg) Remix® High Back Chair by Knoll® — Innerspaces
+[ ![](https://i.pinimg.com/originals/e9/5b/be/e95bbe24a1aa270020909844efab3be1.jpg)](https://i.pinimg.com/originals/e9/5b/be/e95bbe24a1aa270020909844efab3be1.jpg) Remix® High Back Chair | High back chairs, Chair, Ergonomic chair
+[ ![](https://www.knoll.com/media/541/617/Thumb_11390_z,2.png)](https://www.knoll.com/media/541/617/Thumb_11390_z,2.png) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://www.knoll.com/media/721/257/12649_c.jpg)](https://www.knoll.com/media/721/257/12649_c.jpg) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://www.knoll.com/media/163/803/remix-side-hero.jpg)](https://www.knoll.com/media/163/803/remix-side-hero.jpg) Remix® Side Chair | Knoll
+[ ![](https://www.knoll.com/media/81/478/11391_high_c.jpg)](https://www.knoll.com/media/81/478/11391_high_c.jpg) Remix® Ergonomic Chair | Knoll
+[ ![](https://www.aof.com/wp-content/media/2015/03/Remix_news_featured_image-web.jpg)](https://www.aof.com/wp-content/media/2015/03/Remix_news_featured_image-web.jpg) Meet the Remix Chair by Knoll - Arenson Office Furnishings
+[ ![](https://www.aof.com/wp-content/media/2015/03/Arenson-Remix-work-chair-e1425695663964.jpg)](https://www.aof.com/wp-content/media/2015/03/Arenson-Remix-work-chair-e1425695663964.jpg) Meet the Remix Chair by Knoll - Arenson Office Furnishings
+[ ![](https://www.knoll.com/static_resources/images/products/catalog/eco/parts/64SX/64SX-GL_2_~_(RXS)_RXS01_(RXB)_RXB01_FZ.jpg)](https://www.knoll.com/static_resources/images/products/catalog/eco/parts/64SX/64SX-GL_2_~_(RXS)_RXS01_(RXB)_RXB01_FZ.jpg) Remix® Side Chair | Knoll
+[ ![](https://media.wired.com/photos/59273b94af95806129f51fed/1:1/w_200,h_200,c_limit/gl_2402_deskchair.jpg)](https://media.wired.com/photos/59273b94af95806129f51fed/1:1/w_200,h_200,c_limit/gl_2402_deskchair.jpg) Knoll's $670 Remix Office Chair Is an Oasis in a Corporate Wasteland | WIRED
+[ ![](https://www.knoll.com/media/379/847/12038_n.jpg)](https://www.knoll.com/media/379/847/12038_n.jpg) Knoll
+[ ![](https://www.knoll.com/media/529/103/12825_c,0.jpg)](https://www.knoll.com/media/529/103/12825_c,0.jpg) Remix® Side Chair | Knoll
+[ ![](https://i.ytimg.com/vi/p_9MIJB67Fs/hqdefault.jpg)](https://i.ytimg.com/vi/p_9MIJB67Fs/hqdefault.jpg) Knoll Remix Line - YouTube
+[ ![](https://www.knoll.com/media/704/120/remix-high-back-chairs.jpg)](https://www.knoll.com/media/704/120/remix-high-back-chairs.jpg) Knoll for the Canadian Federal Government | Market Focus | Knoll
+[ ![](https://img2.cgtrader.com/items/2586999/fb4646835e/knoll-remix-hight-back-chair-3d-model-max-obj-fbx.jpg)](https://img2.cgtrader.com/items/2586999/fb4646835e/knoll-remix-hight-back-chair-3d-model-max-obj-fbx.jpg) Knoll Remix - Hight Back Chair 3D model MAX OBJ FBX
+[ ![](https://www.aof.com/wp-content/media/2015/03/Remix-Ergonomics.jpg)](https://www.aof.com/wp-content/media/2015/03/Remix-Ergonomics.jpg) Meet the Remix Chair by Knoll - Arenson Office Furnishings
+[ ![](https://www.knoll.com/media/588/165/remix-chapters-arm.jpg)](https://www.knoll.com/media/588/165/remix-chapters-arm.jpg) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://3dwarehouse.sketchup.com/warehouse/v1.0/publiccontent/fde7c818-fb32-442f-8c2d-05cd3f7ae45f)](https://3dwarehouse.sketchup.com/warehouse/v1.0/publiccontent/fde7c818-fb32-442f-8c2d-05cd3f7ae45f) KNOLL Remix - High Back | 3D Warehouse
+[ ![](https://www.knoll.com/media/432/443/12598_c.jpg)](https://www.knoll.com/media/432/443/12598_c.jpg) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://www.knoll.com/media/440/516/Thumb_generation-by-knoll-task-chair,5.png)](https://www.knoll.com/media/440/516/Thumb_generation-by-knoll-task-chair,5.png) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://www.knoll.com/media/844/348/Thumb_12917_z,8.png)](https://www.knoll.com/media/844/348/Thumb_12917_z,8.png) Remix® Side Chair | Knoll
+[ ![](https://www.knoll.com/media/410/841/remix-chapters-tailored-touch.jpg)](https://www.knoll.com/media/410/841/remix-chapters-tailored-touch.jpg) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://cdn.shopify.com/s/files/1/0202/3990/products/Remix_High_Back_Chair_31_medium.jpg?v=1555862207)](https://cdn.shopify.com/s/files/1/0202/3990/products/Remix_High_Back_Chair_31_medium.jpg?v=1555862207) Remix High Back Chair
+[ ![](https://hivemodern.com/public_resources/remix-work-chair-formway-knoll.jpg)](https://hivemodern.com/public_resources/remix-work-chair-formway-knoll.jpg) Remix® High Back Chair - hivemodern.com
+[ ![](https://www.knoll.com/media/290/455/Thumb_11375_high_z,3.png)](https://www.knoll.com/media/290/455/Thumb_11375_high_z,3.png) Remix® Ergonomic Chair | Knoll
+[ ![](https://www.knoll.com/media/881/735/12077_n.jpg)](https://www.knoll.com/media/881/735/12077_n.jpg) Knoll
+[ ![](https://www.knoll.com/media/136/189/remix-dimensions.jpg)](https://www.knoll.com/media/136/189/remix-dimensions.jpg) Remix® Ergonomic Chair | Knoll
+[ ![](https://images.squarespace-cdn.com/content/v1/5b16ceba372b965bcf3b248c/1536182927389-1K2RHH3AGFQFM8UVDPGX/ke17ZwdGBToddI8pDm48kFxe9SL9DLSyrSnD0IetuQRZw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZUJFbgE-7XRK3dMEBRBhUpwLKFqVG1y8_MjuzNh43VtjRRK0a-RU6m3I3kxh3e83YEC-FwmQ-KuGuZGye_Vcn6g/remix-chapters-redefined-comfort-2.jpg)](https://images.squarespace-cdn.com/content/v1/5b16ceba372b965bcf3b248c/1536182927389-1K2RHH3AGFQFM8UVDPGX/ke17ZwdGBToddI8pDm48kFxe9SL9DLSyrSnD0IetuQRZw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZUJFbgE-7XRK3dMEBRBhUpwLKFqVG1y8_MjuzNh43VtjRRK0a-RU6m3I3kxh3e83YEC-FwmQ-KuGuZGye_Vcn6g/remix-chapters-redefined-comfort-2.jpg) Remix® High Back Chair by Knoll® — Innerspaces
+[ ![](https://cdn.yourzoom.com/2m/2409418/2409418.yz/main.jpg)](https://cdn.yourzoom.com/2m/2409418/2409418.yz/main.jpg) Knoll Saarinen Executive Side Chair with Castors - 2Modern
+[ ![](https://cdn.yourzoom.com/2m/35161676/35161676.yz/main.jpg)](https://cdn.yourzoom.com/2m/35161676/35161676.yz/main.jpg) Knoll K. Task Office Chair - 2Modern
+[ ![](https://www.knoll.com/media/70/876/Thumb_12955_z,4.png)](https://www.knoll.com/media/70/876/Thumb_12955_z,4.png) Remix® Side Chair | Knoll
+[ ![](https://modernplanet.com/media/catalog/product/cache/2/image/9df78eab33525d08d6e5fb8d27136e95/r/e/remix-side-chair-64sx-gl_2_-__rxs__rxs13__rxb__rxb13_fz.jpg)](https://modernplanet.com/media/catalog/product/cache/2/image/9df78eab33525d08d6e5fb8d27136e95/r/e/remix-side-chair-64sx-gl_2_-__rxs__rxs13__rxb__rxb13_fz.jpg) Knoll Remix® Side Chair
+[ ![](https://cdn.yourzoom.com/2m/13477340/13477340.yz/main.jpg)](https://cdn.yourzoom.com/2m/13477340/13477340.yz/main.jpg) Knoll Pilot by Knoll Lounge Chair - High Back with Upholstered Arm - 2Modern
+[ ![](https://image.ylighting.com/is/image/modern/KNOP210976_alt54?$modern-600$)](https://image.ylighting.com/is/image/modern/KNOP210976_alt54?$modern-600$) Knoll Remix High Back Office Chair | YLighting.com
+[ ![](https://www.knoll.com/media/125/444/Thumb_11384_z,2.png)](https://www.knoll.com/media/125/444/Thumb_11384_z,2.png) Remix® Ergonomic Chair | Knoll
+[ ![](https://www.knoll.com/media/170/101/Thumb_12904_z,4.png)](https://www.knoll.com/media/170/101/Thumb_12904_z,4.png) Remix® Side Chair | Knoll
+[ ![](https://www.rjebusinessinteriors.com/wp-content/uploads/2018/11/remix-fam-640x480.jpg)](https://www.rjebusinessinteriors.com/wp-content/uploads/2018/11/remix-fam-640x480.jpg) 12 Products We Are Thankful For In 2018 - RJE Business Interiors
+[ ![](https://i.ebayimg.com/images/g/g-sAAOSwuoZfjOBZ/s-l400.jpg)](https://i.ebayimg.com/images/g/g-sAAOSwuoZfjOBZ/s-l400.jpg) Authentic Knoll Remix High Back Chair 2018 Ergonomic office chair fabric  seat | eBay
+[ ![](https://cdn.yourzoom.com/2m/2409186/2409186.yz/main.jpg)](https://cdn.yourzoom.com/2m/2409186/2409186.yz/main.jpg) Knoll ReGeneration Upholstered Office Chair - Height Adjustable - 2Modern
+[ ![](https://www.knoll.com/media/202/575/Thumb_12915_z,8.png)](https://www.knoll.com/media/202/575/Thumb_12915_z,8.png) Remix® Side Chair | Knoll
+[ ![](https://image.ylighting.com/is/image/modern/KNOP211016_alt09?$modern-600$)](https://image.ylighting.com/is/image/modern/KNOP211016_alt09?$modern-600$) Knoll Life Office Chair | YLighting.com
+[ ![](https://www.knoll.com/media/853/695/Thumb_life-task-chair-default,5.png)](https://www.knoll.com/media/853/695/Thumb_life-task-chair-default,5.png) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://images.lumens.com/is/image/Lumens/lighting/KNOP210970?$Lumens.com-600$)](https://images.lumens.com/is/image/Lumens/lighting/KNOP210970?$Lumens.com-600$) ReGeneration Office Chair by Knoll 44 1 HA 2 S L HC DK 09 USF RU10
+[ ![](http://bauhausinteriors.com/wp-content/uploads/2015/02/remix-vs-embody-1024x733.jpg)](http://bauhausinteriors.com/wp-content/uploads/2015/02/remix-vs-embody-1024x733.jpg) Knoll Remix vs. Herman Miller Embody - bauhaus
+[ ![](https://image.ylighting.com/is/image/modern/KNOP210993_alt06?$modern-600$)](https://image.ylighting.com/is/image/modern/KNOP210993_alt06?$modern-600$) Knoll Generation Office Chair | YLighting.com
+[ ![](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1463475963833789&get_thumbnail=1)](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1463475963833789&get_thumbnail=1) Workspace Team - “Knoll ergonomic chairs challenge the...
+[ ![](https://images.lumens.com/is/image/Lumens/KNOP210976_alt05?$Lumens.com-600$)](https://images.lumens.com/is/image/Lumens/KNOP210976_alt05?$Lumens.com-600$) Remix High Back Office Chair by Knoll at Lumens.com
+[ ![](https://viewer-isapi.cylindo.com/api/cropper/resize?account-id=4800&sku-id=7788&features=2110530,2110477,2221480&sku-version=&frame=1&max-size=205&format=jpg&bgcolor=ffffff)](https://viewer-isapi.cylindo.com/api/cropper/resize?account-id=4800&sku-id=7788&features=2110530,2110477,2221480&sku-version=&frame=1&max-size=205&format=jpg&bgcolor=ffffff) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://cdn.hiconsumption.com/wp-content/uploads/2020/05/Steelcase-Gesture-Task-Chair.jpg)](https://cdn.hiconsumption.com/wp-content/uploads/2020/05/Steelcase-Gesture-Task-Chair.jpg) 15 Best Ergonomic Office Chairs of 2020 | HiConsumption
+[ ![](https://modernplanet.com/media/catalog/product/cache/2/image/1800x/040ec09b1e35df139433887a97daa66f/r/e/remix-side-chair-12922_z.jpg)](https://modernplanet.com/media/catalog/product/cache/2/image/1800x/040ec09b1e35df139433887a97daa66f/r/e/remix-side-chair-12922_z.jpg) Knoll Remix® Side Chair
+[ ![](https://cdn.yourzoom.com/2m/29192169/29192169.yz/main.jpg)](https://cdn.yourzoom.com/2m/29192169/29192169.yz/main.jpg) Knoll KN02 Swivel High Back Recliner - 2Modern
+[ ![](https://www.knoll.com/media/508/419/Thumb_saarinen-executive-armless-swivel-base,5.png)](https://www.knoll.com/media/508/419/Thumb_saarinen-executive-armless-swivel-base,5.png) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://cdn.yourzoom.com/2m/13477049/13477049.yz/main.jpg)](https://cdn.yourzoom.com/2m/13477049/13477049.yz/main.jpg) Knoll Pilot Lounge Chair - High Back - 2Modern
+[ ![](https://talottainteriors-website.s3.amazonaws.com/uploads/GRAY-1050x1400.jpg)](https://talottainteriors-website.s3.amazonaws.com/uploads/GRAY-1050x1400.jpg) Pre-Owned Furniture – Talotta Contract Interiors & Office Furniture
+[ ![](https://www.knoll.com/media/56/718/11424_n.jpg)](https://www.knoll.com/media/56/718/11424_n.jpg) Knoll
+[ ![](https://cdn.shopify.com/s/files/1/0335/7393/products/armchair_with_pad_large.PNG?v=1489082118)](https://cdn.shopify.com/s/files/1/0335/7393/products/armchair_with_pad_large.PNG?v=1489082118) office tagged "high"
+[ ![](https://www.furniturefinders.com/dboffice//files/41416.jpg)](https://www.furniturefinders.com/dboffice//files/41416.jpg) Used Office Chairs : Knoll Remix Ergonomic Chair in Light Grey at Furniture  Finders
+[ ![](https://hivemodern.com/public_resources/full/regeneration-high-task-stool-formway-knoll-1.jpg)](https://hivemodern.com/public_resources/full/regeneration-high-task-stool-formway-knoll-1.jpg) Remix® High Back Chair - hivemodern.com
+[ ![](https://image.yliving.com/is/image/modern/lighting/KNOP210967?$modern-600$)](https://image.yliving.com/is/image/modern/lighting/KNOP210967?$modern-600$) MultiGeneration Light Task Office Chair by Knoll KNO1740257
+[ ![](https://cdn.yourzoom.com/2m/7668068/7668068.yz/main.jpg)](https://cdn.yourzoom.com/2m/7668068/7668068.yz/main.jpg) Knoll Generation Colored Office Chair - Height Adjustable - 2Modern
+[ ![](http://www.aleradetails.com/wp-content/uploads/2016/08/107535.jpg)](http://www.aleradetails.com/wp-content/uploads/2016/08/107535.jpg) Alera® Elusion Series Mesh High-Back Multifunction Chair, Black – Alera  Details
+[ ![](https://www.knoll.com/media/484/738/Thumb_11373_high_z,3.png)](https://www.knoll.com/media/484/738/Thumb_11373_high_z,3.png) Remix® Ergonomic Chair | Knoll
+[ ![](https://modernplanet.com/media/catalog/product/cache/2/image/1800x/040ec09b1e35df139433887a97daa66f/r/e/remix_6.jpg)](https://modernplanet.com/media/catalog/product/cache/2/image/1800x/040ec09b1e35df139433887a97daa66f/r/e/remix_6.jpg) Knoll Remix® High Back Chair
+[ ![](https://hivemodern.com/public_resources/full/life-chair-formway-knoll-1.jpg)](https://hivemodern.com/public_resources/full/life-chair-formway-knoll-1.jpg) Remix® High Back Chair - hivemodern.com
+[ ![](https://www.knoll.com/media/126/419/Thumb_11381_z,4.png)](https://www.knoll.com/media/126/419/Thumb_11381_z,4.png) Remix® Ergonomic Chair | Knoll
+[ ![](https://cdn.yourzoom.com/2m/361846/361846.yz/shopping_feed.jpg?1231)](https://cdn.yourzoom.com/2m/361846/361846.yz/shopping_feed.jpg?1231) Knoll Remix High Back Office Chair - Height Adjustable - 2Modern
+[ ![](https://images.lumens.com/is/image/Lumens/lighting/KNOY18664?$Lumens.com-600$)](https://images.lumens.com/is/image/Lumens/lighting/KNOY18664?$Lumens.com-600$) Platner Arm Chair in Gold by Knoll 1725A GLD K78484
+[ ![](https://image.yliving.com/is/image/modern/lighting/KNOP178303?$modern-600$)](https://image.yliving.com/is/image/modern/lighting/KNOP178303?$modern-600$) Saarinen Executive Chair with Wood Leg by Knoll KNO1708027
+[ ![](https://www.decorist.com/static/finds/product_images/full_size/249257-12.6848f7016f56dfe1db487a0efc45027b.png)](https://www.decorist.com/static/finds/product_images/full_size/249257-12.6848f7016f56dfe1db487a0efc45027b.png) About A Chair 153 Office Chair | Remix 123 | Decorist
+[ ![](https://modernplanet.com/media/catalog/product/v/o/vo-0940-doeskin.jpg)](https://modernplanet.com/media/catalog/product/v/o/vo-0940-doeskin.jpg) Knoll Remix® High Back Chair
+[ ![](https://www.knoll.com/media/199/293/Thumb_11392_high_z,3.png)](https://www.knoll.com/media/199/293/Thumb_11392_high_z,3.png) Remix® Ergonomic Chair | Knoll
+[ ![](https://talottainteriors-website.s3.amazonaws.com/uploads/GRAYS-1050x1400.jpg)](https://talottainteriors-website.s3.amazonaws.com/uploads/GRAYS-1050x1400.jpg) Pre-Owned Furniture – Talotta Contract Interiors & Office Furniture
+[ ![](https://img.archiexpo.com/images_ae/photo-g/9769-12946800.webp)](https://img.archiexpo.com/images_ae/photo-g/9769-12946800.webp) Contemporary office chair - REGENERATION - Knoll - on casters / star base /  with armrests
+[ ![](https://cdn.hiconsumption.com/wp-content/uploads/2020/05/Best-Ergonomic-Office-Chairs-0-Hero.jpg)](https://cdn.hiconsumption.com/wp-content/uploads/2020/05/Best-Ergonomic-Office-Chairs-0-Hero.jpg) 15 Best Ergonomic Office Chairs of 2020 | HiConsumption
+[ ![](https://modernplanet.com/media/catalog/product/cache/2/small_image/325x/9df78eab33525d08d6e5fb8d27136e95/b/a/back_net_3.jpg)](https://modernplanet.com/media/catalog/product/cache/2/small_image/325x/9df78eab33525d08d6e5fb8d27136e95/b/a/back_net_3.jpg) Ergonomic Chairs - Seating - Shop by Type
+[ ![](https://www.knoll.com/media/64/761/Thumb_11388_high_z,2.png)](https://www.knoll.com/media/64/761/Thumb_11388_high_z,2.png) Remix® Ergonomic Chair | Knoll
+[ ![](https://images.lumens.com/is/image/Lumens/lighting/KNOP210993?$Lumens.com-600$)](https://images.lumens.com/is/image/Lumens/lighting/KNOP210993?$Lumens.com-600$) Generation Office Chair by Knoll 11 1 HA 2 S X HC LT 03 USF GENU03
+[ ![](https://image.yliving.com/is/image/modern/lighting/KNOP208746?$modern-600$)](https://image.yliving.com/is/image/modern/lighting/KNOP208746?$modern-600$) Newson Armchair by Knoll KNO1722641
+[ ![](https://www.knoll.com/media/661/637/11674_n.jpg)](https://www.knoll.com/media/661/637/11674_n.jpg) Knoll
+[ ![](https://cdn.yourzoom.com/2m/35302895/35302895.yz/shopping_feed.jpg?1231)](https://cdn.yourzoom.com/2m/35302895/35302895.yz/shopping_feed.jpg?1231) Knoll Remix Work Chair - Height Adjustable - 2Modern
+[ ![](https://talottainteriors-website.s3.amazonaws.com/uploads/20200910_123056-1050x1400.jpg)](https://talottainteriors-website.s3.amazonaws.com/uploads/20200910_123056-1050x1400.jpg) Pre-Owned Furniture – Talotta Contract Interiors & Office Furniture
+[ ![](https://www.knoll.com/media/721/525/fiber-armchair-swivel-base-swivel-default.png)](https://www.knoll.com/media/721/525/fiber-armchair-swivel-base-swivel-default.png) Remix® High Back Ergonomic Chair | Knoll
+[ ![](https://cdn.shopify.com/s/files/1/0335/7393/products/side_ee6257e5-8cdb-455d-a2ba-3a788a97ebb0_large.PNG?v=1489523689)](https://cdn.shopify.com/s/files/1/0335/7393/products/side_ee6257e5-8cdb-455d-a2ba-3a788a97ebb0_large.PNG?v=1489523689) office tagged "high"
+[ ![](http://thebuildingsource.com//Uploads/productFiles/2bfeac10remix-high-back-dims.jpg)](http://thebuildingsource.com//Uploads/productFiles/2bfeac10remix-high-back-dims.jpg) Knoll Furniture, Remix High Back Office Chair - BOSS in Trinidad - The  Building Source
+[ ![](https://hivemodern.com/public_resources/multigeneration-light-task-chair-formway-knoll.jpg)](https://hivemodern.com/public_resources/multigeneration-light-task-chair-formway-knoll.jpg) Remix® High Back Chair - hivemodern.com
+[ ![](https://cdn.hiconsumption.com/wp-content/uploads/2020/05/Herman-Miller-Cosm-High-Back-Chair.jpg)](https://cdn.hiconsumption.com/wp-content/uploads/2020/05/Herman-Miller-Cosm-High-Back-Chair.jpg) 15 Best Ergonomic Office Chairs of 2020 | HiConsumption
+[ ![](https://www.sysfurniture.com/wp-content/uploads/2019/10/Knoll-Remix-with-standard-lumbar-support.jpg)](https://www.sysfurniture.com/wp-content/uploads/2019/10/Knoll-Remix-with-standard-lumbar-support.jpg) Choosing a chair for comfort and adjustability
+[ ![](https://talottainteriors-website.s3.amazonaws.com/uploads/blue-3-1050x1400.jpg)](https://talottainteriors-website.s3.amazonaws.com/uploads/blue-3-1050x1400.jpg) Pre-Owned Furniture – Talotta Contract Interiors & Office Furniture
+[ ![](https://image.yliving.com/is/image/modern/lighting/KNOY18518?$modern-600$)](https://image.yliving.com/is/image/modern/lighting/KNOY18518?$modern-600$) Krusin Side Chair by Knoll KNLY931798

@@ -1,0 +1,109 @@
++++
+        
+author = "Our Writers"
+        
+title = "Office Desk Chair Gumtree"
+        
+date = 2020-11-09T16:56:52.170491
+        
++++
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/rc8AAOSwpHxfiwjF/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/rc8AAOSwpHxfiwjF/$_86.JPG) Black Office Desk Chair - Adjustable - Swivel | in Leytonstone, London |  Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/nbwAAOSw2ide7J-l/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/nbwAAOSw2ide7J-l/$_86.JPG) Office/Desk Chair | in Edinburgh | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/O5wAAOSw4PlfV3u1/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/O5wAAOSw4PlfV3u1/$_86.JPG) Adjustable Office / Desk Chair | in Barnet, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY1WDEwMjQ=/z/EPIAAOSwgbpfeMrb/$_86.JPG)](https://i.ebayimg.com/00/s/NzY1WDEwMjQ=/z/EPIAAOSwgbpfeMrb/$_86.JPG) Office desk chair | in Portishead, Bristol | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Mzk=/z/swIAAOSwxdVem324/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Mzk=/z/swIAAOSwxdVem324/$_86.JPG) Ergonomic Office desk chair | in Bromley, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/F-AAAOSwopFfMDdw/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/F-AAAOSwopFfMDdw/$_86.JPG) Ikea MARKUS Office Desk Chair | in Oval, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/OTU4WDcxOA==/z/yagAAOSw0UNetuS~/$_86.JPG)](https://i.ebayimg.com/00/s/OTU4WDcxOA==/z/yagAAOSw0UNetuS~/$_86.JPG) Office desk chair | in Hammersmith, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/JAoAAOSw2ipe~2Ov/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/JAoAAOSw2ipe~2Ov/$_86.JPG) High Quality Office (Desk) Chair - Black Leather | in South Kensington,  London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg1NjM=/z/DjsAAOSwDphfncwD/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg1NjM=/z/DjsAAOSwDphfncwD/$_86.JPG) Ikea swivel office desk chair | in Carrickfergus, County Antrim | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/SgwAAOSweF1eU7uN/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/SgwAAOSweF1eU7uN/$_86.JPG) Office / Desk Chair | in Herne Bay, Kent | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/nC8AAOSwSmJfIeKd/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/nC8AAOSwSmJfIeKd/$_86.JPG) Desk chair | in North West London, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/FdQAAOSwH~RfoZwn/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/FdQAAOSwH~RfoZwn/$_86.JPG) Office Desk Chair | in Hamilton, South Lanarkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/DbsAAOSwMMxezkHT/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/DbsAAOSwMMxezkHT/$_86.JPG) Office desk chair | in Arlesey, Bedfordshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/jPgAAOSwjONeGGK9/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/jPgAAOSwjONeGGK9/$_86.JPG) Black faux leather home office desk chair for sale | in Waterlooville,  Hampshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/UfcAAOSwHfdfaQHC/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/UfcAAOSwHfdfaQHC/$_86.JPG) Office Desk Chair Ikea | in Exeter, Devon | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/MRcAAOSwtjBePE1f/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/MRcAAOSwtjBePE1f/$_86.JPG) Office desk chair | in Tewkesbury, Gloucestershire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/hs8AAOSwtP9e32Nv/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/hs8AAOSwtP9e32Nv/$_86.JPG) Black swivel office desk chair | in Durham, County Durham | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/LDEAAOSwQPdfjxdt/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/LDEAAOSwQPdfjxdt/$_86.JPG) Adjustable black office / desk chair | in Bromley, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg2NDM=/z/GigAAOSwiQ1fDXXA/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg2NDM=/z/GigAAOSwiQ1fDXXA/$_86.JPG) LIKE BRAND NEW QUALITY SENATOR BRAND STURDY FINE OFFICE DESK CHAIR COLORFUL  | in Hammersmith, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/ZVwAAOSwr-hfeHt0/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/ZVwAAOSwr-hfeHt0/$_86.JPG) Office desk chairs | in Wakefield, West Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/iFgAAOSwhjNeuAo~/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/iFgAAOSwhjNeuAo~/$_86.JPG) Brunner ergonomic designer high back office/desk chair! | in Brick Lane,  London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/jR4AAOSwfZpeaki2/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/jR4AAOSwfZpeaki2/$_86.JPG) White IKEA Office/Desk Chair | in Dyce, Aberdeen | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/sOUAAOSwjJZfeKh8/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/sOUAAOSwjJZfeKh8/$_86.JPG) IKEA Markus Office desk chair | in Birmingham City Centre, West Midlands |  Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/W40AAOSwU2JdzuNs/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/W40AAOSwU2JdzuNs/$_86.JPG) Ikea Markus office desk chair | in Burnopfield, Tyne and Wear | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/I8oAAOSw4QRfnXSL/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/I8oAAOSw4QRfnXSL/$_86.JPG) Office Desk Chair - Good & Clean Condition | in London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/XQIAAOSwCQ1fmw8I/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/XQIAAOSwCQ1fmw8I/$_86.JPG) IKEA Office Desk Chair FLINTAN Black | in Cathays, Cardiff | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NTAwWDUwMA==/z/RmwAAOSwybpbkWxV/$_86.JPG)](https://i.ebayimg.com/00/s/NTAwWDUwMA==/z/RmwAAOSwybpbkWxV/$_86.JPG) Ikea JÄRVFJÄLLET Swivel office / desk chair with armrests Glose black | in  Meadows, Edinburgh | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/ShYAAOSwGIZeubst/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/ShYAAOSwGIZeubst/$_86.PNG) IKEA Villstad office desk chair | in Wandsworth, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/OTkxWDc1MA==/z/R6MAAOSwqUtem36O/$_86.JPG)](https://i.ebayimg.com/00/s/OTkxWDc1MA==/z/R6MAAOSwqUtem36O/$_86.JPG) Ergonomic New Office Desk Computer Chair | in Bromley, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/nVMAAOSwseJfEXRa/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/nVMAAOSwseJfEXRa/$_86.JPG) IKea Office Desk Chair | in Motherwell, North Lanarkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg0ODU=/z/n7AAAOSwKQNffZB9/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg0ODU=/z/n7AAAOSwKQNffZB9/$_86.JPG) Home Office Desk Chair | in Dover, Kent | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/GiEAAOSwd39faZ9X/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/GiEAAOSwd39faZ9X/$_86.JPG) Desk Office Chair | in Norwich, Norfolk | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/XcQAAOSw3D1fkYD-/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/XcQAAOSw3D1fkYD-/$_86.JPG) IKEA - Office Desk Chair - Flintan | in Birmingham City Centre, West  Midlands | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/YxoAAOSw2mhflXVJ/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/YxoAAOSw2mhflXVJ/$_86.JPG) Desk Chair, Black | in Southside, Glasgow | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDQ4Nw==/z/B9wAAOSwaEhfguFc/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDQ4Nw==/z/B9wAAOSwaEhfguFc/$_86.PNG) Ikea office desk chair | in South East London, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/E6EAAOSwU2BeSu3B/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/E6EAAOSwU2BeSu3B/$_86.JPG) Black Ikea Office/Desk Chair | in Ponteland, Tyne and Wear | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/pL8AAOSwhjNe6jFA/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/pL8AAOSwhjNe6jFA/$_86.JPG) Black Faux Leather Adjustable Office Desk Chair on Wheels | in Colchester,  Essex | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/gIEAAOSwpnlfmXwI/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/gIEAAOSwpnlfmXwI/$_86.JPG) Office/ desk chair - Ikea | in Gloucester, Gloucestershire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/-zIAAOSw6IVePAXo/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/-zIAAOSw6IVePAXo/$_86.PNG) IKEA office / desk chair - Black & White | in Rugby, Warwickshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/FBQAAOSw6Hdfmn0z/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/FBQAAOSw6Hdfmn0z/$_86.JPG) Cheap office desk chair | in Tower Hamlets, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY1WDEwMjQ=/z/zHMAAOSwgn5feMre/$_86.JPG)](https://i.ebayimg.com/00/s/NzY1WDEwMjQ=/z/zHMAAOSwgn5feMre/$_86.JPG) Office desk chair | in Portishead, Bristol | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Mzc=/z/cj8AAOSwnEde1CiS/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Mzc=/z/cj8AAOSwnEde1CiS/$_86.JPG) Modern office / desk chair | in Kentish Town, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/9X0AAOSwpo9fXNs-/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/9X0AAOSwpo9fXNs-/$_86.JPG) Office Desk Chair - 2 available - £10 each | in North Berwick, East Lothian  | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/0UIAAOSwM4pdj41X/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/0UIAAOSwM4pdj41X/$_86.JPG) Desk Office Chair | in Newcastle, Tyne and Wear | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/~qUAAOSw4m5feF8D/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/~qUAAOSw4m5feF8D/$_86.JPG) Very Sturdy Stylish Green Office/Desk Chair | in Archway, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/f1UAAOSwK~ldla5M/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/f1UAAOSwK~ldla5M/$_86.JPG) Olmstead Mid-Back Desk Chair by Langley Street | in High Wycombe,  Buckinghamshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/epcAAOSwCB5flaaA/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/epcAAOSwCB5flaaA/$_86.JPG) Office desk chair | in Dunstable, Bedfordshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/KWUAAOSweupfQoGs/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/KWUAAOSweupfQoGs/$_86.JPG) High quality office desk chair | in Battersea, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/OGcAAOSwJ~9bJjPS/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/OGcAAOSwJ~9bJjPS/$_86.JPG) Office/Desk Chair - half the price | in Sutton, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NTc2WDEwMjQ=/z/OrQAAOSwo25fGF-l/$_86.JPG)](https://i.ebayimg.com/00/s/NTc2WDEwMjQ=/z/OrQAAOSwo25fGF-l/$_86.JPG) Grey Office / Desk Chair - £30 | in Sunderland, Tyne and Wear | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NjAwWDYwMA==/z/x1EAAOSwsVVfaHFf/$_20.JPG)](https://i.ebayimg.com/00/s/NjAwWDYwMA==/z/x1EAAOSwsVVfaHFf/$_20.JPG) PU Leather Racing Style Office Desk Chair – Black &White | Office Chairs |  Gumtree Australia Tea Tree Gully Area - Hope Valley | 1257387137
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/5~MAAOSwZYFflo9p/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/5~MAAOSwZYFflo9p/$_86.JPG) ALPHASON Office Desk Chair (Black) - 2 MONTHS OLD | in Canada Water, London  | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/uYkAAOSwB69fXTMV/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/uYkAAOSwB69fXTMV/$_86.JPG) Office desk, chair, chest of drawer and back board | in Southampton,  Hampshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg4MTk=/z/sa8AAOSwgU5fmTkz/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg4MTk=/z/sa8AAOSwgU5fmTkz/$_86.JPG) Office Desk Chair Orangebox Model Ara | in Hackney, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDQ1MA==/z/JOEAAOSwsAFfdhJ0/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDQ1MA==/z/JOEAAOSwsAFfdhJ0/$_86.PNG) Office Desk Chair from IKEA | in Darwen, Lancashire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/tuwAAOSwv2pfiXZQ/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/tuwAAOSwv2pfiXZQ/$_86.JPG) Orange Box Full Ergonomic Office Desk Chair | in Stratford, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ekAAAOSwVOBfg2Wv/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ekAAAOSwVOBfg2Wv/$_86.JPG) Ikea leather office/desk chair | in Rushmere St Andrew, Suffolk | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/gakAAOSwJM5fUkIF/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/gakAAOSwJM5fUkIF/$_86.JPG) Office Desk Chairs For Sale | in Newry, County Down | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/nwoAAOSwDjlfQ6Xr/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/nwoAAOSwDjlfQ6Xr/$_86.JPG) IKEA SKRUVSTA office desk chair | in Maidstone, Kent | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDQ1MQ==/z/R8UAAOSwgaVe5Rk5/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDQ1MQ==/z/R8UAAOSwgaVe5Rk5/$_86.PNG) Office /desk chair (sold pending collection) | in York, North Yorkshire |  Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg2OTE=/z/1MwAAOSwBNRfSB0o/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg2OTE=/z/1MwAAOSwBNRfSB0o/$_86.JPG) Faux Leather Computer Office Desk Chair (used) | in Redcar, North Yorkshire  | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/KOcAAOSwuIFfnwXY/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/KOcAAOSwuIFfnwXY/$_86.JPG) Black Swivel office desk chair | in Walthamstow, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/kigAAOSwq-JecHsW/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/kigAAOSwq-JecHsW/$_86.JPG) Desk Chair | in Sunbury-on-Thames, Surrey | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/~l4AAOSwpkpfnVNn/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/~l4AAOSwpkpfnVNn/$_86.JPG) Pair of office / desk chairs. | in Crystal Palace, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/~GEAAOSw6rFfiCOO/$_58.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/~GEAAOSw6rFfiCOO/$_58.JPG) Home Office Desk Chair | in Guildford, Surrey | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/WB0AAOSwWQdfbhB-/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/WB0AAOSwWQdfbhB-/$_86.JPG) Adjustable blue office / desk chair | in Wallingford, Oxfordshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/bsIAAOSwYpVewHU5/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/bsIAAOSwYpVewHU5/$_86.PNG) IKEA pink adjustable swivel office desk chair | in Coventry, West Midlands  | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Nzc=/z/2HwAAOSwGUNfUaPU/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Nzc=/z/2HwAAOSwGUNfUaPU/$_86.JPG) Office Desk Chair | in Barnet, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/6CsAAOSw~5xe9gbH/$_58.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/6CsAAOSw~5xe9gbH/$_58.JPG) Leather Office/Desk Chair | in Dorchester, Dorset | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ttgAAOSwQypfkBK8/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ttgAAOSwQypfkBK8/$_86.JPG) IKEA white plastic swivel office desk chair | in Wimbledon, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/vYoAAOSw8vtfec1x/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/vYoAAOSw8vtfec1x/$_86.JPG) Real Black Leather office desk chair | in East London, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg1OTk=/z/rl4AAOSwxx5faedF/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg1OTk=/z/rl4AAOSwxx5faedF/$_86.JPG) Giselle swivel office desk chair | in Harrogate, North Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/bbIAAOSwSdFflzd0/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/bbIAAOSwSdFflzd0/$_86.JPG) Office Desk Chair IKEA | in Walthamstow, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ezoAAOSwuJpebiLL/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ezoAAOSwuJpebiLL/$_86.JPG) Senator Evolve EV740MF Office Desk Chair | in Muswell Hill, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/XWMAAOSwUpdcZcoH/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/XWMAAOSwUpdcZcoH/$_86.JPG) Ikea Malkolm / Millberget Office / Desk Chair | in Southampton, Hampshire |  Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/Yt4AAOSwLfxeT9GU/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/Yt4AAOSwLfxeT9GU/$_86.JPG) Black/Dark grey office desk chair | in Leicester, Leicestershire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/Nzk0WDc1MA==/z/~AAAAOSwWoRekijP/$_86.JPG)](https://i.ebayimg.com/00/s/Nzk0WDc1MA==/z/~AAAAOSwWoRekijP/$_86.JPG) New Leather Executive Office desk chair | in Bromley, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/OO8AAOSw3qRbplK3/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/OO8AAOSw3qRbplK3/$_86.JPG) Ikea Alrik Office Desk Chair as new | in Somerset | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg1NzY=/z/cT0AAOSwQbFfSXcN/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg1NzY=/z/cT0AAOSwQbFfSXcN/$_86.JPG) Office Desk Chair | in Newcastle-under-Lyme, Staffordshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/iyAAAOSwI7ZcYbbh/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/iyAAAOSwI7ZcYbbh/$_86.JPG) office desk chair | in Cardiff | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/hgIAAOSwExVe45Nh/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/hgIAAOSwExVe45Nh/$_86.JPG) Office desk chair | in Ingleby Barwick, County Durham | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/NFgAAOSw-yNfmCPR/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/NFgAAOSw-yNfmCPR/$_86.JPG) Swivel Office Desk Chair | in Falkirk | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/EbcAAOSwylJfitTf/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/EbcAAOSwylJfitTf/$_86.JPG) Adjustable office desk chair | in Tooting, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg0OTc=/z/Y60AAOSwjoZfQ~8K/$_58.JPG)](https://i.ebayimg.com/00/s/MTAyNFg0OTc=/z/Y60AAOSwjoZfQ~8K/$_58.JPG) Office Desk Chair | in Southampton, Hampshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDU1MQ==/z/91cAAOSwZ2Bfgunl/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDU1MQ==/z/91cAAOSwZ2Bfgunl/$_86.PNG) Ikea swivel office/desk chair | in West Cross, Swansea | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njk=/z/xKgAAOSwqgFeODAs/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njk=/z/xKgAAOSwqgFeODAs/$_86.JPG) Red office desk chair: Good condition, fully adjustable. | in Lewisham,  London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/qW0AAOSwZfNffyTE/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/qW0AAOSwZfNffyTE/$_86.JPG) NEW IN BOX IKEA LOBERGET / BLYSKÄR Swivel office desk chair, white | in  Edinburgh | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ejoAAOSwqDVe5h34/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ejoAAOSwqDVe5h34/$_86.JPG) Ikea Markus (grey fabric) High back Office Desk Chair | in West Drayton,  London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/OAIAAOSwUZdfEtpu/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/OAIAAOSwUZdfEtpu/$_86.JPG) Office Desk Chair | in Sandwell, West Midlands | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzAwWDcwMA==/z/dAYAAOSwhEdeaTBG/$_86.JPG)](https://i.ebayimg.com/00/s/NzAwWDcwMA==/z/dAYAAOSwhEdeaTBG/$_86.JPG) Ikea office desk chair | in Houghton Le Spring, Tyne and Wear | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/4zoAAOSw0Ktfh5C3/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/4zoAAOSw0Ktfh5C3/$_86.JPG) Ikea office desk chair SKRUVSTA - accepting offers | in Plaistow, London |  Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDU3MQ==/z/aNUAAOSwfgNfBcqE/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDU3MQ==/z/aNUAAOSwfgNfBcqE/$_86.PNG) IKEA Torbjorn student office desk chair | in Maidenhead, Berkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg1NzU=/z/jkEAAOSwZgheS8nn/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg1NzU=/z/jkEAAOSwZgheS8nn/$_86.JPG) Ikea office/desk chair | in Southampton, Hampshire | Gumtree
+[ ![](https://i.ebayimg.com/images/g/-YQAAOSwENVfhDBJ/s-l800.webp)](https://i.ebayimg.com/images/g/-YQAAOSwENVfhDBJ/s-l800.webp) Office Desk Chair - Mesh Back, Adjustable - Almost New! Brunswick | Office  Chairs | Gumtree Australia Moreland Area - Brunswick | 1258944479
+[ ![](https://i.ebayimg.com/images/g/16kAAOSwum1flKOY/s-l800.webp)](https://i.ebayimg.com/images/g/16kAAOSwum1flKOY/s-l800.webp) PU Leather Executive Office Desk Chair - Black | Office Chairs | Gumtree  Australia Parramatta Area - Toongabbie | 1259842096
+[ ![](https://i.ebayimg.com/00/s/MTYwMFgxMjAw/z/uJoAAOSwttRflJ8E/$_58.JPG)](https://i.ebayimg.com/00/s/MTYwMFgxMjAw/z/uJoAAOSwttRflJ8E/$_58.JPG) Ergonomic desk chair | Office Chairs | Gumtree Australia Parramatta Area -  Merrylands | 1259841220
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg1NzY=/z/NggAAOSwvclfhtQC/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg1NzY=/z/NggAAOSwvclfhtQC/$_86.JPG) Office/Desk Chairs For Sale | in West End, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg0OTc=/z/trwAAOSweEhfA4dA/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg0OTc=/z/trwAAOSweEhfA4dA/$_86.JPG) Brand New Ergonomic Office desk chair - Free delivery | in Bromley, London  | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDgwMA==/z/ItQAAOSw6vtfLqT0/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDgwMA==/z/ItQAAOSw6vtfLqT0/$_86.PNG) Swivel Office/Desk Chair (White) | in Batley, West Yorkshire | Gumtree
+[ ![](https://target.scene7.com/is/image/Target/OfficeChairs-200326-1585252166913)](https://target.scene7.com/is/image/Target/OfficeChairs-200326-1585252166913) Office Chairs & Desk Chairs : Target
